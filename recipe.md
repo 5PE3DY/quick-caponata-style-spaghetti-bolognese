@@ -18,7 +18,7 @@
 
 ### INSTRUCTIONS
  
-** Method; **
+**Method**;
 
 Cook pasta according to pack instructions.
 Slice the roasted red peppers into thin slices.Grate the carrot. Peel and finely chop the garlic, if using. Peel and chop onion into small dice. Chop olives. Drain and rinse the lentils. Pick the fresh basil from the stalk.
