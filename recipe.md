@@ -19,6 +19,7 @@
 ### INSTRUCTIONS
  
 ** Method; **
+
 Cook pasta according to pack instructions.
 Slice the roasted red peppers into thin slices.Grate the carrot. Peel and finely chop the garlic, if using. Peel and chop onion into small dice. Chop olives. Drain and rinse the lentils. Pick the fresh basil from the stalk.
 Put a non stick frying pan on high heat, once hot add 1 tbsp of oil, add the chopped onion and grated carrot and cook for 2-3 minute, stirring continuously, add the chopped olives, the raisins and garlic powder, cook for 1 minute, add the passata and drained lentils, bring to a boil, add the chopped basil (put a little aside for garnish), add the cooked pasta and mix well together and heat through. To serve, divide into serving bowls and top with remaining basil and a drizzle of olive oil
